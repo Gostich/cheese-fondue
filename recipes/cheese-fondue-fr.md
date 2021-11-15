@@ -5,13 +5,15 @@
 Pour 200g de fondue "Gosti" (portion pour une personne)
 
 - Fromages (poids net, sans couenne):
-    - 100g de gruyère
+    - 100g de gruyère doux*
     - 50g de vacherin
     - 25g de tilsit
     - 25g d'appenzeller
 - 7.5cl de vin blanc de cuisine
 - 1 cuillère à café de maïzena
 - ~1/4 de tête d'ail (à volonté)
+
+\* Un gruyère trop salé ne donne pas le goût crémeux attendu.
 
 ## Recette
 
