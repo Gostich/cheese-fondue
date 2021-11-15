@@ -31,6 +31,7 @@ Ne pas oublier le poivrier sur la table à utiliser directement dans l'assiette 
 ## Astuce
 
 - En touillant, il faut veiller à ce que le fromage n'adhère pas au fond du caquelon et à bien mélanger la masse de fromage, en forme de 8 (ne pas faire tourner la masse)
+- Si la fondue est trop liquide, il est possible de l'épaissir en ajoutant de la maïzena mélangée à un peu de vin blanc pour éviter les grumeaux
 
 ## Options
 
